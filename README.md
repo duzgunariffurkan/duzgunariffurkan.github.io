@@ -1,0 +1,2 @@
+# duzgunariffurkan.github.io
+kişisel
